@@ -1,4 +1,4 @@
-# 
+# Avancé Vegas Pro pour PC extensions est le meilleur Vegas Pro pour PC extensions avec effets de particules et égaliseur. Sécurisé, fiable et optimisé pour des performances
 
 
 
